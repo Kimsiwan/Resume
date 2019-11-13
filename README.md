@@ -1,2 +1,2 @@
-# Developer Wan 이력서
+# Dev Wan 이력서
 
